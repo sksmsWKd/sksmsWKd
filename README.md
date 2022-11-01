@@ -13,15 +13,6 @@
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=sksmsWKd&layout=compact&theme=tokyonight&border_color=black)](https://github.com/anuraghazra/github-readme-stats)
 
 
-<br>
-<br>
-:point_down::point_down:Thanks for visit my blog
-
-<br>
-<br>
-
-[![text](https://img1.daumcdn.net/thumb/R1280x0/?scode=mtistory2&fname=https%3A%2F%2Fblog.kakaocdn.net%2Fdn%2FdXCxYs%2Fbtq9gzgsQBm%2FA6xchQH27ilEJyTsXA4qvk%2Fimg.png)](https://habbang0.tistory.com/)
-
 
 
 
